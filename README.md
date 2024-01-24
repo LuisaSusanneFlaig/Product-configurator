@@ -1,8 +1,8 @@
 # About The Project
 
 
+https://github.com/LuisaSusanneFlaig/Product-configurator/assets/76207270/6ef44088-6bb2-44a0-96cf-4d2f1e28ba67
 
-Uploading Produktkonfigurator - Google Chrome 2024-01-24 15-00-43.mp4…
 
 
 
